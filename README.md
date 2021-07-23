@@ -1,3 +1,6 @@
+One person's 'paranoia' is another person's 'engineering redundancy'.
+Marcus J. Ranum
+
 - 👋 Hi, I’m @vely2564
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
